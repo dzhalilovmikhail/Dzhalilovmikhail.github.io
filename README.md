@@ -1,1 +1,0 @@
-# Dzhalilovmikhail.github.io
